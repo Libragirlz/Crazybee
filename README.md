@@ -1,2 +1,1 @@
-# Crazybee
-Queenbeee
+We're looking to empower young women to not live under the wings of men in the future,to know that they have the power to live full lives without being dependent on men . As we all know in the olden days young women were forced into marriage but now things have changed except there are still women who live under men's wings and we want to make sure that we change that completely as we encourage them to be independent from financially to being great mothers !
